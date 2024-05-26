@@ -2,7 +2,7 @@
 
 Updated 0940 GMT+8 Feb 19, 2024
 
-2024 spring, Complied by ==刘致远 工学院==
+2024 spring, Complied by == 工学院==
 
 
 
